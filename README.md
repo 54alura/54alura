@@ -1,4 +1,5 @@
-Boas vindas ao meu perfil :  Meu nome é Paula Vieira 
+Boas vindas ao meu perfil💙💙
+Meu nome é Paula Vieira 
 
 .Estou estudando na Alura 
 
